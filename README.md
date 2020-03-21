@@ -1,2 +1,0 @@
-# rahmadhidayat12
-Education
